@@ -1,1 +1,1 @@
-👋 Hi, I’m @spareilleux-intrado
+👋 Hi, I’m Stéphane Pareilleux (spareilleux-intrado)
